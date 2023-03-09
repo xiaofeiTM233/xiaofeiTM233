@@ -17,3 +17,7 @@ How lucky to meet you!
 * [微博](https://weibo.com/u/7713449059)
 * [爱发电](https://afdian.net/@xiaofeitm233)
 * [Q:1286865098](tencent://message/?uin=1286865098&Site=qq&Menu=yes)
+
+英语不是我的母语，可能运用的不好，请见谅！
+
+English is not my native language, I may not use it well, please forgive me！
