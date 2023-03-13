@@ -5,6 +5,8 @@ How lucky to meet you!
 
 你好，这里是飞小RAN ，对有趣的世界和可能有趣的你感到好奇，00后，是个出生。
 
+*Native speakers of Chinese*
+
 是一位常驻的[坎公Bwiki管理员](https://wiki.biligame.com/gt/?curid=8943)，一位[UP主](https://space.bilibili.com/646195980)，还是[一个网站](https://hitfun.top)的维护者。
 
 现是一位[Dr.](https://ak.hypergryph.com) [Guardian](https://www.guardiantales.com) [Sensei](https://bluearchive.jp)，且游戏是生活乐趣之一~
@@ -17,7 +19,3 @@ How lucky to meet you!
 * [微博](https://weibo.com/u/7713449059)
 * [爱发电](https://afdian.net/@xiaofeitm233)
 * [Q:1286865098](tencent://message/?uin=1286865098&Site=qq&Menu=yes)
-
-英语不是我的母语，可能运用的不好，请见谅！
-
-English is not my native language, I may not use it well, please forgive me！
