@@ -18,4 +18,6 @@ How lucky to meet you!
 * [推特](https://twitter.com/xiaofeiTM233)
 * [微博](https://weibo.com/u/7713449059)
 * [爱发电](https://afdian.net/@xiaofeitm233)
+* KOOK：[飞小RAN#0546](https://kook.top/cj1xLX)
+* Discord：[飞小RAN#9472](https://discord.gg/Y9YZuYUAbg)
 * [Q:1286865098](tencent://message/?uin=1286865098&Site=qq&Menu=yes)
