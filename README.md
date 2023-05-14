@@ -3,7 +3,7 @@
 
 How lucky to meet you!
 
-你好，这里是飞小RAN ，对有趣的世界和可能有趣的你感到好奇，00后，是个出生。
+你好，这里是飞小RAN ，对有趣的世界和可能有趣的你感到好奇，00后，~是个出生~。
 
 *Native speakers of Chinese*
 
