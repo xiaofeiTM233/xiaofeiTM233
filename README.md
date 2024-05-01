@@ -7,7 +7,9 @@ How lucky to meet you!
 
 *Native speakers of Chinese*
 
-是一位常驻的[坎公Bwiki管理员](https://wiki.biligame.com/gt/?curid=8943)，一位[UP主](https://space.bilibili.com/646195980)，还是[一个网站](https://hitfun.top)的维护者。
+现管理[坎公Bwiki](https://wiki.biligame.com/gt/User:646195980)，是一位[UP主](https://space.bilibili.com/646195980)，也维护着[一个小网站](https://hitfun.top)。
+
+*[WIKI](https://wiki.hitfun.top/arona/%E9%A6%96%E9%A1%B5) is under construction!*~ *请使用中国 IP 进行访问, Otherwise 307* ~ 
 
 现是一位[Dr.](https://ak.hypergryph.com) [Guardian](https://www.guardiantales.com) [Sensei](https://bluearchive.jp)，且游戏是生活乐趣之一~
 
@@ -20,4 +22,4 @@ How lucky to meet you!
 * [爱发电](https://afdian.net/@xiaofeitm233)
 * KOOK：[飞小RAN#0546](https://kook.top/cj1xLX)
 * Discord：[飞小RAN#9472 / xiaofeitm233](https://discord.com/users/1091986244650672258)
-* [Q:1286865098](tencent://message/?uin=1286865098&Site=qq&Menu=yes)
+* You can find more of my contact info in other websites~
