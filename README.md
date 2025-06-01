@@ -7,15 +7,15 @@ How lucky to meet you!
 
 *Native speakers of Chinese*
 
-现管理[坎公Bwiki](https://wiki.biligame.com/gt/User:646195980)，是一位[UP主](https://space.bilibili.com/646195980)，也维护着[一个小网站](https://www.bwiki.xyz)。
+现管理[坎公Bwiki](https://wiki.biligame.com/gt/User:646195980)，是一位[UP主](https://space.bilibili.com/646195980)，也维护着[一个小网站](https://www.02000721.xyz)。
 
-*[WIKI](https://wiki.bwiki.xyz/arona/%E9%A6%96%E9%A1%B5) is under construction!*~
+*[WIKI](https://wiki.02000721.xyz/arona/%E9%A6%96%E9%A1%B5) is under construction!*~
 
 现是一位[Dr.](https://ak.hypergryph.com) [Guardian](https://www.guardiantales.com) [Sensei](https://bluearchive.jp)，且游戏是生活乐趣之一~
 
 这里有一些我的联系方式，希望能与你在比特之海的繁星之下相见！
 
-* [个人网站](https://www.bwiki.xyz)
+* [个人网站](https://www.02000721.xyz)
 * [哔哩哔哩](https://space.bilibili.com/646195980)
 * [推特](https://twitter.com/xiaofeiTM233)
 * [微博](https://weibo.com/u/7713449059)
