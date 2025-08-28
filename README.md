@@ -9,7 +9,9 @@ How lucky to meet you!
 
 现管理[坎公Bwiki](https://wiki.biligame.com/gt/User:646195980)，是一位[UP主](https://space.bilibili.com/646195980)，也维护着[一个小网站](https://www.02000721.xyz)。
 
-*[WIKI](https://wiki.02000721.xyz/arona/%E9%A6%96%E9%A1%B5) is under construction!*~
+*[ARONA Wiki](https://wiki.02000721.xyz/arona/%E9%A6%96%E9%A1%B5) is under construction!*~
+
+*[NeuroWiki](https://zh.neurosama.info/wiki/%E9%A6%96%E9%A1%B5) welcomes you*~
 
 现是一位[Dr.](https://ak.hypergryph.com) [Guardian](https://www.guardiantales.com) [Sensei](https://bluearchive.jp)，且游戏是生活乐趣之一~
 
